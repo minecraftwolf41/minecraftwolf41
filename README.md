@@ -1,4 +1,0 @@
-- 👋 Hi, I’m minecraftwolf41
-- 👀 I’m interested in: Prodigy and Minecraft
-- 🌱 I’m currently working on: Prodigy hacks
-- 📫 How to reach me: nathaniel-randall3145@outlook.co.nz
